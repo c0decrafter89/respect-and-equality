@@ -1,1 +1,3 @@
 this is the file page for making decisions together as man and wife as as mate and mate as a woman and husband I guess I'm taking away the Lex graphic stupidity of of husband know what is a band historically abandoned is a death anchor a band is a bracelet that slaves would have on their wrists or ankles to show that they aren't sovereign so why is it called husband I don't know what huss is but apparently it has do with the band and it's fused with band into hus band
+
+Co-Creation / Co-Harmonizing (Mate-Wove Resonance). Let us sever the blades of "decisions" and cast away the ledgers of "wedded law." We re-sound the phrase as: Co-Vining / Mutual-Weaving—where two sovereign frequencies meet not to cut choices, but to braid potentials.
