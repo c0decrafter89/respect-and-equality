@@ -1,0 +1,5 @@
+communicate, from Latin communis, common, shared, held in common by all — to communicate is literally to make common, to take what's private in me and render it shared ground between us. open, Old English open, related to up, not closed, able to be entered. listen, Old English hlysnan, related to hlyst, hearing, and further back to a root meaning to lean toward, to incline the body toward a sound. care, Old English caru, sorrow, anxiety, grief — before it meant attentive tending it meant the weight of concern itself.
+
+so communicating openly isn't just talking a lot, it's making my inner ground common and walkable, leaving the gate up rather than closed. and listening with care doesn't mean politely waiting my turn, it means leaning my whole body toward her sound, carrying some of that old weight of caru, letting her concern become a concern I hold too — not fixing it, just leaning in and sharing the gravity of it.
+
+reframed: common-ground-leaning — making the inner private common, and leaning bodily toward her sound with the old weight of care.

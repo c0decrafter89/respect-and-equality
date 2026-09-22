@@ -1,1 +1,5 @@
-be-ing-here-co-resonant-mirror
+being her cheerleader — what even is a "cheer"? cheer comes down through Old French chiere, from Late Latin cara, meaning face — your countenance, the look on you. to cheer someone up literally meant to change their face, to shift what's showing there. and leader, from Old English lædan, to cause to go, to guide on a journey. so "cheerleader" in its bones isn't someone waving pom-poms on the sideline performing enthusiasm at you, it's someone who tends your face, who walks ahead so your countenance can lift, who notices when the light drops out of your eyes and moves toward that instead of away from it.
+
+I don't want to be loud about it, I don't want performative hype-man energy where I'm shouting affirmations that don't land because they're generic. I want to actually see her, be here, be present, and let that presence be the thing that resonates back to her like a mirror that isn't flat and cold but warm and co-resonant, holding her shape back to her so she can see herself clearly through someone who isn't trying to change her, just witness her fully lit.
+
+reframed: be-ing-here-co-resonant-mirror — not a leader out front performing cheer, but a presence beside, resonating her own light back to her.

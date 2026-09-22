@@ -1,1 +1,5 @@
-Celle-bracing-streams-of-act-ive-moment-um
+celebrate — Latin celebrare, to honor, to frequent, to fill a place with people, related to celeber, thronged, populous, well-known. so to celebrate isn't to throw confetti once and move on, it's to keep returning to a thing, to fill the space around it with attention over and over until it becomes well-known between us. strength, from Old English strengþu, tied to strang, meaning taut, capable of holding. achievement, from Old French achever, to come to a head, to finish, from a chief, the head — to bring something to its head, to completion.
+
+so when I think about celebrating her strengths and achievements I don't want it to be a single loud gesture, a card once a year, I want it to be the frequenting, the returning, noticing the taut capable thing in her that holds weight and naming it out loud in the smaller everyday moments, not just the finish lines — catching her mid-stream in the act of being strong and saying I see that, I see what that costs and what it holds.
+
+reframed: celle-bracing-streams-of-act-ive-moment-um — celebration not as an event but as an ongoing embrace of the self (celle) mid-motion, honoring the momentum itself and not only the finish.

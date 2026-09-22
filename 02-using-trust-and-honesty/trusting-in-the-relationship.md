@@ -1,0 +1,5 @@
+trust, from Old Norse traust, firmness, confidence, security, related to Old English treowe, true, faithful. relationship, from Latin referre, re- back, and ferre, to carry — to carry something back and forth, again and again. so a relationship in its root is just the repeated carrying, the back-and-forth motion of two people ferrying meaning between them, and trust is the firmness that lets the carrying keep happening without collapsing.
+
+when I think about trusting in the relationship I don't think of it as a static fact I either have or don't have, I think of it as the ongoing weight-bearing, the structural firmness underneath every trip we make carrying something — a feeling, a fear, a plan — back and forth between us. I trust the carrying because I trust myself to keep showing up for my end of the ferry, and that's different than blind faith; it's confidence built out of repetition, out of the bridge holding every single time we cross it.
+
+reframed: fero-firmness — the firmness that lets the back-and-forth carrying between us keep happening without either of us dropping the load.

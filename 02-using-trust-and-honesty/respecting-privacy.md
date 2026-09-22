@@ -1,0 +1,5 @@
+respect, re- again, and specere, to look, to view — so to respect is literally to look again, to look a second time before assuming you already know what you saw the first time. privacy, from Latin privatus, set apart, belonging to oneself, from privare, to deprive, to separate from the common. it's strange that privacy and deprived share a root, like the language buried an old suspicion in the word itself, as if having something set apart from the group were a kind of lack rather than a kind of wholeness.
+
+respecting her privacy then isn't about secrecy or two people building separate locked rooms, it's about looking again before I assume access is owed to me, honoring that some rooms are hers alone to walk through first, and that doesn't deprive me of anything — it just means I re-view what belonging to each other actually requires: not total transparency demanded on command, but a second look that trusts she'll bring me in when it's time.
+
+reframed: re-viewing-the-set-apart — not looking away, but looking again, honoring what is privately hers as whole rather than as a deprivation from us.
