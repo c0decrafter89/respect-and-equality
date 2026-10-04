@@ -51,6 +51,8 @@ The project is organized with a folder for each main section of the wheel, conta
   * `being-transparent-about-money.md`
   * `supporting-financial-goals.md`
   * `making-decisions-that-benefit-the-family.md`
+* **`09-nvc-dictionary/`**
+  * `whats-up.md`
 
 ---
 
