@@ -55,6 +55,7 @@ The project is organized with a folder for each main section of the wheel, conta
   * `muerto-muertos.md`
   * `panda-express-where-good-fortune-smiles.md`
   * `thank-you-sir.md`
+  * `thats-so-crazy.md`
   * `whats-up.md`
 
 ---
