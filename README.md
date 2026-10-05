@@ -52,6 +52,7 @@ The project is organized with a folder for each main section of the wheel, conta
   * `supporting-financial-goals.md`
   * `making-decisions-that-benefit-the-family.md`
 * **`09-nvc-dictionary/`**
+  * `muerto-muertos.md`
   * `panda-express-where-good-fortune-smiles.md`
   * `thank-you-sir.md`
   * `whats-up.md`
