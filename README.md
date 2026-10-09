@@ -53,6 +53,7 @@ The project is organized with a folder for each main section of the wheel, conta
   * `making-decisions-that-benefit-the-family.md`
 * **`09-nvc-dictionary/`**
   * `are-you-continuing-this-fast.md`
+  * `i-dont-want-to-be-here.md`
   * `muerto-muertos.md`
   * `panda-express-where-good-fortune-smiles.md`
   * `radiate-kindness.md`
